@@ -1,1 +1,1 @@
-validar
+Superman, el inmortal héroe de las viñetas de cómic, de la animación y de la gran pantalla, se erige en nuestra sociedad como una figura mítica comparable al semidiós Hércules de la antigüedad clásica. Esta es la visión de José Ángel Garfias Frías, académico de la Facultad de Ciencias Políticas y Sociales de la UNAM, quien arroja luz sobre la perdurabilidad del personaje a través de las generaciones.
